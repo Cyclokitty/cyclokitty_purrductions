@@ -1,1 +1,3 @@
-# cyclokitty_purrductions
+# Cyclokitty Purrductions
+
+## Privacy Policy
